@@ -1,1 +1,1 @@
-# Joy_Namugenyi_REII424_Lab_1
+# JoyNamugenyi_REII424_Lab_1
